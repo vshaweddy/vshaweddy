@@ -15,5 +15,5 @@ I am a developer with a product design background. I've helped startups build th
 📧 Contact:
 - vshaweddy@gmail.com	
 
-✨ Pronounce:
+✨ Pronouns:
 - She / Her

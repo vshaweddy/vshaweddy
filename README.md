@@ -1,5 +1,4 @@
 ## Hello, My Name is Vici 👋
-### Currently looking for an iOS developer role!
 
 I am a developer with a product design background. I've helped startups build their products for the past five years, from B2B to B2C and from web apps to mobile apps.
 
